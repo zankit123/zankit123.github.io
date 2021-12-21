@@ -12,7 +12,7 @@ codder to pro codder.Also working on youtube except from study.
 - Photo editing
 
 ### Project
-- Currently there is no any project.
+- Currently there is no any project😭.
 - [Youtube](https://www.youtube.com/channel/UC9hk_mn1pNIu5DgbATnttmg)
 
 ### Hobbies
