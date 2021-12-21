@@ -8,7 +8,7 @@ codder to pro codder.Also working on youtube except from study.
 - Small android developer😄
 
 ### Extra skills-
-- Video editing(Aadobe premiere pro,Filmora go,Davinci resolve)
+- Video editing(Adobe premiere pro,Filmora go,Davinci resolve)
 - Photo editing
 
 ### Project
